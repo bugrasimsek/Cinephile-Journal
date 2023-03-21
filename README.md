@@ -1,1 +1,1 @@
-# Cinephile-Journal
+# Cinephile Journal
